@@ -8,7 +8,7 @@ As a Wordpress, I have a comprehensive understanding of the web development proc
 
 
 * 🖥️  Checkout my  [Upwork](https://www.upwork.com/freelancers/~0132e4517861146798)
-* ✉️  You can contact me at [shoaib@finfshoaib.me]
+* ✉️  You can contact me at [shoaib@findshoaib.me]
 * 🧠  I'm learning Everything
 * 🤝  I'm open to collaborating on Interestring Projects
 
